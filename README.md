@@ -1,2 +1,2 @@
 # EscolaDeFerias
-Dornelas e Luigi fiatinhos
+Dornelas ou Luigi fiatinhos
